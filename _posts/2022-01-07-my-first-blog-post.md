@@ -1,3 +1,8 @@
+---
+title: "It's me"
+date: 2022-01-07
+---
+
 Ever since I was a child I liked creating all kinds of things. However, fate has decided otherwise and I have taught economics and mathematics. So, I got a Master's in Economic Cybernetic. Thanks to it I’m familiar with technology and numbers.
 
 Fortunately, life throws unexpected surprises and sharp turns. Leaving the comfort zone was an amazing opportunity to realize my personal pursuit.
